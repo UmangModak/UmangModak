@@ -9,7 +9,9 @@
 📫 How to reach me:
 
 Email: modakumang@gmail.com
+
 LinkedIn:  https://www.linkedin.com/in/umang-modak-16b0b7200
+
 GitHub: https://github.com/UmangModak/UmangModak
 
 
